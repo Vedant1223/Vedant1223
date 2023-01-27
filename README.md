@@ -1,4 +1,4 @@
-![MasterHead](https://i.pinimg.com/originals/9e/75/9f/9e759fd37ccd98da121b670249f34afa.gif)
+![MasterHead](https://i.pinimg.com/originals/a7/b0/15/a7b015d343ad801ad6da8c242dc6ae06.gif)
 
 
 ### Hi there 👋 I am Vedant
